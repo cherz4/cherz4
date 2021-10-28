@@ -1,4 +1,3 @@
-### Hi there 👋
 
 I am an experienced epidemiologist, global health expert (12 years experience) and quantitative disease ecologist (5 years experience). Expert at collecting, managing, and analyzing complex scientific data sets and integrating parallel data streams to uncover insights and visualize results. Experience working in theory and testing models against data, data collection and analysis, study design, and working in both human and animal systems domestically and abroad (Egypt, Zambia, Tanzania, Ethiopia, India). Demonstrated expertise in managing complex projects involving coordination with international organizations, government partners, and non-governmental organizations across borders. Extensive experience in communicating science to federal and international agencies, academic audiences, and the public.
 
